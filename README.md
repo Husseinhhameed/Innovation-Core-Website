@@ -106,7 +106,6 @@ For inquiries, feedback, or support, please reach out:
 
 - 🌐 Website: [https://nawatalebdaa.com](https://nawatalebdaa.com)  
 - 📧 Email: info@nawatalebdaa.com  
-- 📱 WhatsApp: [Click here to chat](https://wa.me/YOUR_NUMBER) *(replace YOUR_NUMBER with actual)*
 
 ---
 
